@@ -1,0 +1,3 @@
+# 2021 New Year Token 
+
+In commemoration of New Year's Day, the total number of tokens is 2021, no founder shares, no venture capital interests, and no issuance. Issued on january 1, 2021, in order to avoid pre-robbery, The New York Times Pre-sale, pre-sale 1010 pieces, ETH:The New York Times=1:10 For pre-sale, The New York Times Uniswap will be online at pre-sale price, The community awarded 215 prizes and the remaining 795 prizes to the bottom pool, Developers only leave 1 as a permanent commemoration of the New Year's Day, the meaning of the new year, new year new atmosphere, new day is to tell you: your short life and over a year.
